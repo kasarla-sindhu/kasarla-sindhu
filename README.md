@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **React**
 
-- 📫 How to reach me **sindhureddy0146@gmail.com**
+- 📫 How to reach me **sindhukasarla999@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1QSlU2e_Ip-vhi11bkXjxb_cj_vFIx3c-/view?usp=sharing](https://drive.google.com/file/d/1QSlU2e_Ip-vhi11bkXjxb_cj_vFIx3c-/view?usp=sharing)
 
